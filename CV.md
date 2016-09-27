@@ -31,6 +31,7 @@ Yinghua Chinese Immersion School of Minnesota___________________________________
 Position: Intern_______________________________________________________________________Location: Minneapolis USA
 
 Teaching elementary students Chinese, English, Art, Music. Acquired skills of organization and communication.
+
 -
 
 Education
