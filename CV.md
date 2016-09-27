@@ -12,7 +12,7 @@ My goal is to apply my theoretical knowledge into practice, as well as to gain m
 
 Experience
 --------
-Abengoa & Befesa Desalination Co. Ltd                       June—August 2013
+Abengoa & Befesa Desalination Co. Ltd    //////////////////    June—August 2013
 
 Position: Intern	                   _________                          Location: Qingdao China
 
