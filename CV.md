@@ -14,7 +14,7 @@ Experience
 --------
 Abengoa & Befesa Desalination Co. Ltd ___________________________________  June—August 2013
 
-Position: Intern_________      Location: Qingdao China
+Position: Intern______________________________________________________Location: Qingdao China
 
 Acquired start-up company skills such as problem solving under pressure, organizational and language skills, team and individual work, through numerous tasks like permit registration, file translation, client research, new project proposals, meetings with municipal government to present projects and to negotiate competitive price.
 
