@@ -38,16 +38,16 @@ Education
 -------
 Tilburg University
 
-Economics Pre-Master___________________________________________________________________September 2015—May 2016	Average 7.4
+Economics Pre-Master___________________________________________________________September 2015—May 2016	Average 7.4
 
-Economics Master_______________________________________________________________________Begin in September 2016
+Economics Master_______________________________________________________________Begin in September 2016
 
 -
 Connecticut College (USA)
 
-Bachelor in Economics Major & Studio Art Minor_________________________________________September 2012—May 2015	GPA 3.8
+Bachelor in Economics Major & Studio Art Minor__________________________________September 2012—May 2015	GPA 3.8
 
-Breck School of Minnesota (USA)________________________________________________________High school Diploma
+Breck School of Minnesota (USA)_________________________________________________High school Diploma
 
 -
 Skills
