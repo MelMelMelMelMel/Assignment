@@ -11,6 +11,7 @@ My goal is to apply my theoretical knowledge into practice, as well as to gain m
 
 
 Experience
+--------
 Abengoa & Befesa Desalination Co. Ltd	                       June—August 2013
 Position: Intern	                                                                                  Location: Qingdao China
 Acquired start-up company skills such as problem solving under pressure, organizational and language skills, team and individual work, through numerous tasks like permit registration, file translation, client research, new project proposals, meetings with municipal government to present projects and to negotiate competitive price.
