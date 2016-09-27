@@ -26,10 +26,12 @@ Position: Lecturer_________________________________________________________Locat
 Lecture Mandarin and Chinese culture courses. Responsible to orally and visually also by using software’s to demonstrate information. Skills to communicate well with students. 
 
 
-Yinghua Chinese Immersion School of Minnesota    May 2012
-Position: Intern					                         Location: Minneapolis USA
-T
-eaching elementary students Chinese, English, Art, Music. Acquired skills of organization and communication.
+Yinghua Chinese Immersion School of Minnesota_____________________________________________May 2012
+
+Position: Intern__________________________________________________________________________Location: Minneapolis USA
+
+Teaching elementary students Chinese, English, Art, Music. Acquired skills of organization and communication.
+
 
 Education
 -------
