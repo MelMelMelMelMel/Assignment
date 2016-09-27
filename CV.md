@@ -21,7 +21,7 @@ Acquired start-up company skills such as problem solving under pressure, organiz
 
 Three-Rivers Community College___________________________________________August 2014—May 2015
 
-Position: Lecturer_______________________________________________________Location: Norwich USA
+Position: Lecturer_________________________________________________________Location: Norwich USA
 
 Lecture Mandarin and Chinese culture courses. Responsible to orally and visually also by using software’s to demonstrate information. Skills to communicate well with students. 
 
