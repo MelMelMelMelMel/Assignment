@@ -45,9 +45,9 @@ Economics Master_______________________________________________________________B
 -
 Connecticut College (USA)
 
-Bachelor in Economics Major & Studio Art Minor____________________________________September 2012—May 2015	GPA 3.8
+Bachelor in Economics Major & Studio Art Minor_____________________________________September 2012—May 2015	GPA 3.8
 
-Breck School of Minnesota (USA)_________________________________________________High school Diploma
+Breck School of Minnesota (USA)___________________________________________________High school Diploma
 
 -
 Skills
