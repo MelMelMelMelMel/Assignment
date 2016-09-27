@@ -37,18 +37,36 @@ Teaching elementary students Chinese, English, Art, Music. Acquired skills of or
 Education
 -------
 Tilburg University
-Economics Pre-Master			             		          September 2015—May 2016	Average 7.4
-Economics Master					          Begin in September 2016
-Connecticut College (USA)
-Bachelor in Economics Major & Studio Art Minor	          September 2012—May 2015	GPA 3.8
-Breck School of Minnesota (USA)			          High school Diploma
 
+Economics Pre-Master___________________________________________________________________September 2015—May 2016	Average 7.4
+
+Economics Master_______________________________________________________________________Begin in September 2016
+
+-
+Connecticut College (USA)
+
+Bachelor in Economics Major & Studio Art Minor_________________________________________September 2012—May 2015	GPA 3.8
+
+Breck School of Minnesota (USA)________________________________________________________High school Diploma
+
+-
 Skills
 -------
 Two-semester Econometrics, Statistics, & Game Theory and one-semester Behavioral Economics training. Analytical & artistically creative mindset. Excellent usage of STATA, Microsoft Office, Adobe Software’s. 
-Communication                                                            Extra Curricular
-English 		Native					         Women’s Cross Country Athletics Team Member
-Chinese 	Native					         Beijing Olympic Games Volunteer
-Nederlands 	Niveau B1				         PRISM Homeless Shelter Organizer 
-Español 	Pre-Intermedio				         Asian/Asian American Association Representative
+
+-
+Communication  
+-------
+English (native) Chinese (native) Nederlands (Niveau B1) Español (Pre-Intermedio)
+
+-
+Extra Curricular
+-------
+Women’s Cross Country Athletics Team Member
+
+Beijing Olympic Games Volunteer
+
+PRISM Homeless Shelter Organizer 
+
+Asian/Asian American Association Representative
 
