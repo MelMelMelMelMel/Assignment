@@ -1,1 +1,3 @@
-![stack Overflow](http://www.puppyopvoeden.nl/wp-content/uploads/2015/07/hond-in-gras.jpg)
+CV Melody Wang
+
+![alt tag](https://github.com/MelMelMelMelMel/Assignment/blob/master/Screen%20Shot%202016-09-27%20at%2021.46.05.png)
