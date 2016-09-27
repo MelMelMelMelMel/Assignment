@@ -19,16 +19,16 @@ Position: Intern________________________________________________________________
 Acquired start-up company skills such as problem solving under pressure, organizational and language skills, team and individual work, through numerous tasks like permit registration, file translation, client research, new project proposals, meetings with municipal government to present projects and to negotiate competitive price.
 
 -
-Three-Rivers Community College________________________________________________________August 2014—May 2015
+Three-Rivers Community College______________________________________________________August 2014—May 2015
 
-Position: Lecturer______________________________________________________________________Location: Norwich USA
+Position: Lecturer____________________________________________________________________Location: Norwich USA
 
 Lecture Mandarin and Chinese culture courses. Responsible to orally and visually also by using software’s to demonstrate information. Skills to communicate well with students. 
 
 -
-Yinghua Chinese Immersion School of Minnesota__________________________________________May 2012
+Yinghua Chinese Immersion School of Minnesota________________________________________May 2012
 
-Position: Intern_______________________________________________________________________Location: Minneapolis USA
+Position: Intern_____________________________________________________________________Location: Minneapolis USA
 
 Teaching elementary students Chinese, English, Art, Music. Acquired skills of organization and communication.
 
