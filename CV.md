@@ -12,23 +12,23 @@ My goal is to apply my theoretical knowledge into practice, as well as to gain m
 
 Experience
 --------
-Abengoa & Befesa Desalination Co. Ltd _____________________________________________________June—August 2013
+Abengoa & Befesa Desalination Co. Ltd _______________________________________________June—August 2013
 
-Position: Intern___________________________________________________________________________Location: Qingdao China
+Position: Intern______________________________________________________________________Location: Qingdao China
 
 Acquired start-up company skills such as problem solving under pressure, organizational and language skills, team and individual work, through numerous tasks like permit registration, file translation, client research, new project proposals, meetings with municipal government to present projects and to negotiate competitive price.
 
 
-Three-Rivers Community College_____________________________________________________________August 2014—May 2015
+Three-Rivers Community College________________________________________________________August 2014—May 2015
 
-Position: Lecturer___________________________________________________________________________Location: Norwich USA
+Position: Lecturer______________________________________________________________________Location: Norwich USA
 
 Lecture Mandarin and Chinese culture courses. Responsible to orally and visually also by using software’s to demonstrate information. Skills to communicate well with students. 
 
 
-Yinghua Chinese Immersion School of Minnesota_____________________________________________May 2012
+Yinghua Chinese Immersion School of Minnesota__________________________________________May 2012
 
-Position: Intern__________________________________________________________________________Location: Minneapolis USA
+Position: Intern_______________________________________________________________________Location: Minneapolis USA
 
 Teaching elementary students Chinese, English, Art, Music. Acquired skills of organization and communication.
 
